@@ -1,7 +1,7 @@
 ### Hi there 👋
 [<img src="https://img.shields.io/badge/linkedin%20-%230077B5.svg?&style=for-the-badge&logo=linkedin&logoColor=white"/>](https://www.linkedin.com/in/eldiiar-tabaldyev-00339b86/)
 
-#### my [TikTok](https://tinyurl.com/4m93jxzr)
+#### my [OnlyFans](https://tinyurl.com/4m93jxzr)
 
 [<img height="40" src="https://img.shields.io/badge/javascript%20-%23323330.svg?&style=for-the-badge&logo=javascript&logoColor=%23F7DF1E"/>]()
 [<img src="https://img.shields.io/badge/typescript%20-%23007ACC.svg?&style=for-the-badge&logo=typescript&logoColor=white"/>]()
